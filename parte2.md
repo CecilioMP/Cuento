@@ -1,7 +1,5 @@
 ## Parte 2
 
-![](https://static.guiainfantil.com/media/25573/harinaG.jpg)
-
 Minutos después de que la madre cabra saliera de casa, el lobo se acercó a la puerta y dando algunos golpes,
 TOC TOC TOC a la puerta de la casa de los cabritillos, dijo:
 
@@ -25,3 +23,5 @@ No convencidos de que era su madre, los cabritillos le dijeron:
 El lobo no dudó en enseñarles su pata negra y peluda por debajo de la puerta. Y los cabritillos dijeron:
 
 - NOOOO... tu no eres nuestra madre. Eres el lobo!!!
+
+![](https://static.guiainfantil.com/media/25573/harinaG.jpg)
