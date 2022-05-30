@@ -1,4 +1,4 @@
-## Parte4
+## Parte 4
 
 En este momento, pasaba por allí un cazador que, oyendo todo el ruido de voces y el ajetreo, entró en la casa y estaba a punto de matar el lobo cuando el animal salió corriendo asustado y con miedo, rogando al cazador que no le matara y jurando que jamás volvería por aquellos lados.
 
