@@ -1,7 +1,7 @@
 # La mamá cabra y los siete cabritillos
 ## Parte 1
 
-![](https://static.guiainfantil.com/media/25567/cabraG.jpg){width='100px'}
+![](https://static.guiainfantil.com/media/25567/cabraG.jpg)
 
 En una bonita casita del campo vivían 7 cabritillos y su mamá.
 
