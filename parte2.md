@@ -1,4 +1,4 @@
-##Parte 2
+## Parte 2
 
 ![](https://static.guiainfantil.com/media/25573/harinaG.jpg)
 
@@ -25,5 +25,3 @@ No convencidos de que era su madre, los cabritillos le dijeron:
 El lobo no dudó en enseñarles su pata negra y peluda por debajo de la puerta. Y los cabritillos dijeron:
 
 - NOOOO... tu no eres nuestra madre. Eres el lobo!!!
-
-https://static.guiainfantil.com/media/25573/harinaG.jpg
